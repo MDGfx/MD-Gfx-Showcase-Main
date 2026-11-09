@@ -1,1 +1,0 @@
-# MD-Gfx-Showcase-Main
